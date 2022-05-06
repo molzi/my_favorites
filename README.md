@@ -4,6 +4,4 @@
  3. Herr der Ringe
  4. Forrest Gump
  5. Catch me if you can
- 1. Star Wars Episode 4
-
- :)
+ 6. Star Wars Episode 4
